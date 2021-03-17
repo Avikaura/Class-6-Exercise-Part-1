@@ -8,3 +8,4 @@ Which is the best operating system for mobiles? iOs/Android?
 Android is the best operation system, based on its user-interface technologies. This operations system can be easily understood and operatable by all genration people and since it is universal among other mobile companies like Samsung, LG, Micromax, Lava, and much more make it more preferrable and popular among mobile users.
 
 What is the most selling mobiles in Canada?
+Apple iphones on the survey made up on 2020
